@@ -1,1 +1,1 @@
-# za-gazda-D
+# Za Gazda :D
